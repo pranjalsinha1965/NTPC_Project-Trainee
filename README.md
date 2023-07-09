@@ -7,3 +7,8 @@ paperwork and reducing processing time. Key features of the NTPC Simhadri`s Ash 
 System include automated generation of ash certificates based on predefined rules and
 regulations, real-time tracking and monitoring of ash movement, and centralized data
 management of ash-related information.
+
+https://docs.google.com/document/d/19WI2xk4FynFH5V4HIOSW95RZub4gIZFTzrqmBnWqDmk/edit?usp=sharing
+
+
+
