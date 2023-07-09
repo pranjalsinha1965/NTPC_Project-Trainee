@@ -1,6 +1,6 @@
 # NTPC_Project-Trainee
 
-The abstract of the NTPC Simhadri`s Ash Issuing System highlights its key objectives,
+The abstract of the NTPC Simhadri Ash Issuing System highlights its key objectives,
 features, and benefits. The system provides a centralized, web-based interface that enables
 power plant to apply for ash certificates electronically, eliminating the need for manual
 paperwork and reducing processing time. Key features of the NTPC Simhadri`s Ash Issuing
