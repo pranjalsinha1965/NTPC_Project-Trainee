@@ -16,7 +16,7 @@ https://docs.google.com/document/d/19WI2xk4FynFH5V4HIOSW95RZub4gIZFTzrqmBnWqDmk/
 Project mini report 
 https://drive.google.com/file/d/1aUMp0r15gxZJhX8P9qjkRzMx928oUClv/view?usp=sharing
 
-https://drive.google.com/file/d/1Qu3UoTUVtWX759SWwgBFSu272cS7tOaO/view?usp=drive_link
+
 
 
 
