@@ -14,10 +14,8 @@ Daily basis report of the project training
 https://docs.google.com/document/d/19WI2xk4FynFH5V4HIOSW95RZub4gIZFTzrqmBnWqDmk/edit?usp=sharing
 
 Project mini report 
-https://drive.google.com/file/d/1aUMp0r15gxZJhX8P9qjkRzMx928oUClv/view?usp=sharing
+https://drive.google.com/file/d/1qfAjSbyavz2__4S2xZs60qbx9zLhBAE3/view?usp=drive_link
 
-video briefing about my Project Trainee Role:=>
-https://drive.google.com/file/d/1Qu3UoTUVtWX759SWwgBFSu272cS7tOaO/view?usp=sharing
 
 
 
